@@ -1,7 +1,7 @@
-# Personal-Loan-Guide.-
+# <h1>Personal-Loan-Guide </h1>
 ![P 3](https://user-images.githubusercontent.com/83944605/117624326-6bfcc000-b192-11eb-86f3-25edfeaf49e0.jpg)
 
-A personal loan is such an insecure loan that you can obtain from a bank or financial foundation if you anticipate that assets should pay for your money related necessities. The best amount of loan depends upon your month to month pay. In India, there are moneylenders who offer up to Rs.40 lakh. 
+<p align="justify">A personal loan is such an insecure loan that you can obtain from a bank or financial foundation if you anticipate that assets should pay for your money related necessities. The best amount of loan depends upon your month to month pay. In India, there are moneylenders who offer up to Rs.40 lakh. 
 Personal loans are available in an arrangement of conditions. Most importantly, we ought to portray a personal loan. A couple of loans are for a specific purchase. You purchase a home with the loan, get a vehicle, and make up for school with an understudy loan. However, a personal loan can be utilized for just nearly anything, to the extent that you've obtained it for a trustworthy and genuine explanation, you can do what you need with it. 
 
 <b>Few clues for picking the correct personal loan:</b> 
@@ -40,5 +40,5 @@ Personal loans can help improve your business' money related prosperity, anyway 
 
 Axis Bank personal loan can be benefited with zero dispossession and part installment charges along with snappy disbursal and adaptable end-use. Regular employments of a personal loan from Axis incorporate overseeing excursion costs, revamping your home, organizing a fantasy wedding and paying for health related crises. The bank right now gives personal loans going from Rs. 50,000 to Rs. 15 lakh with adaptable reimbursement tenure of 1 to 5 years.
 
-The interest rate of Axis Bank Personal Loan starts from 11.00% p.a. besides, shifts starting with one individual then onto the next subject to competitor's monetary appraisal, supervisor (recorded/unlisted association salaried specialist, autonomously utilized, etc), loan amount, age, etc. 
+The interest rate of <a href="https://www.dialabank.com/personal-loan/axis-bank-personal-loan/"><b>Axis Bank Personal Loan</b></a> starts from 11.00% p.a. besides, shifts starting with one individual then onto the next subject to competitor's monetary appraisal, supervisor (recorded/unlisted association salaried specialist, autonomously utilized, etc), loan amount, age, etc. </p>
 
